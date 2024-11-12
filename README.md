@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @human
 - 👀 I’m interested in living.
-- 🌱 I’m currently learning.
-- 💞️ I’m not looking to collaborate.
+- 🌱 I’m currently living.
+- 💞️ I’m not looking to anything.
 - 📫 Don't reach me.
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: 
